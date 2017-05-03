@@ -1,2 +1,1 @@
-# icecoldstonecold
-my flavor of math. can u dig it?
+_real description to coming soon, just lemme wrap up finals okay?_
