@@ -1,1 +1,1 @@
-_real description to coming soon, just lemme wrap up finals okay?_
+_real description coming soon; just lemme wrap up finals, okay?_
